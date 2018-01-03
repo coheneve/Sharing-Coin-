@@ -1,0 +1,2 @@
+# Sharing-Coin-
+Community cryptocurrency
